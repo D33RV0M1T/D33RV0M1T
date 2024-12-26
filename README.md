@@ -4,13 +4,13 @@
   <img src="https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Graphics/Animals/horse2.gif"><br>
   <img src="https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Favicons/Flowers/flower112.gif"><br>
   ✧ Deer / Doe / Jim :: 20 :: Queer Genderfluid Girl ✧<br>
-  ✦ Jimcurly fanatic, Mouthwashingpilled and Responsibilitymaxxing ✦<br>
+  ✦ Jimcurly and Swansuke save me :: Mouthwashingpilled and Responsibilitymaxxing ✦<br>
   ✧ ADHD / MDD / PCOS :: Mentally unstable but full of whimsy ✧<br>
-✦ Pro-fic / Dead Dove :: Anti-Harassment :: Consuming doesn't equal condoning. ✦<br>
+✦ Profic + DeadDove / Anti-Harrassment ✦<br>
   <br>
 ✮<br>
   <br>
-Any int, I have no DNI and I block freely. <br>
+I love interacting w people :D :: MDNI <br>
 You'll mostly find me at Docks (18+ server) chilling out or talking!<br>
 Please don't drag me into drama / discourse. I have no time or desire to take part in any of it.<br>
 I have little to no filter, and say whatever I want in the spur of the moment.<br>
