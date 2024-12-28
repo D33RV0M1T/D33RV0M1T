@@ -7,14 +7,15 @@
   ✦ Jimcurly and Swansuke save me :: Mouthwashingpilled and Responsibilitymaxxing ✦<br>
   ✧ ADHD / MDD / PCOS :: Mentally unstable but full of whimsy ✧<br>
 ✦ Profic + DeadDove / Anti-Harrassment ✦<br>
+  ✧ If you're curious abt the whole profic thing, I'll make a rentry or smthn. ✧
   <br>
 ✮<br>
   <br>
-I love interacting w people :D :: MDNI <br>
-You'll mostly find me at Docks (18+ server) chilling out or talking!<br>
-Please don't drag me into drama / discourse. I have no time or desire to take part in any of it.<br>
-I have little to no filter, and say whatever I want in the spur of the moment.<br>
-The best time to catch me online is between 10pm - 4am EST.<br>
+✦ I love interacting w people :D :: Minors, please don't interact, ty! ✦<br>
+✧ You'll mostly find me at Docks (18+ server) chilling out or talking! ✧<br>
+✦ Please don't drag me into drama / discourse. I have no time or desire to take part in any of it. ✦<br>
+✧ I have little to no filter, and say whatever I want in the spur of the moment. ✧<br>
+✦ The best time to catch me online is between 10pm - 4am EST. ✦<br>
 <img width="300" src="https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Dividers/abc5acb3.png"><br>
   <img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/act%20silly.png><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/insufferable%20bastard.png><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/Eyefest%201.gif><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/i%20love%20old%20web.png><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/it%20could%20be%20worse.png><br>
   <img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/raven.gif><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/star%20tree.png><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/windows%207.png><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/LSD.png><img src=https://file.garden/ZXFbODtcLzaPWNZm/Page%20Decor%20Archive/Stamps/cringe%20worthy.png><br>
